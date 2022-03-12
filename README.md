@@ -12,4 +12,5 @@ Here are some ideas to get you started:-->
 - 📫 How to reach me: 
     - IG : https://instagram.com/imammufiid_ or https://instagram.com/aeblt.id
     - LinkedIn : Imam Mufiid
+    - Medium : https://medium.com/@imammufiid
 
